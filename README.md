@@ -1,3 +1,3 @@
-  
-<img width="2400" height="2400" alt="Untitled933_20260704040737" src="https://github.com/user-attachments/assets/a6740e3c-f6c7-47b4-ace0-39e2acf55343" />
+<img width="400" height="400" alt="tumblr_160de2fc24d40a4fed828e34ef55a087_0daff219_400" src="https://github.com/user-attachments/assets/cb736d45-d969-4a4c-8fb7-4060f3f6ac6b" />
+
                 hellooooo readme still in wip ૮ ˶ˆ ﻌ ˆ˶ ა 
