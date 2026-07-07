@@ -1,4 +1,3 @@
-<img width="410" height="563" alt="410px-Tsukasa_20_trained_cutout" src="https://github.com/user-attachments/assets/450ce390-cf7d-4302-8cef-9b12d8ce9339" />
+<img width="293" height="293" alt="293px-Tsukasa_Casual_(Brand_New_World)_chibi" src="https://github.com/user-attachments/assets/5eed6bf7-0377-4156-b640-4bc1356f9e00" />
 
-
-hellooooo readme still in wip ૮ ˶ˆ ﻌ ˆ˶ ა 
+Me
