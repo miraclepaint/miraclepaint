@@ -1,4 +1,3 @@
-<img width="400" height="229" alt="tumblr_f44a81d0150f378ae416a9e266e07fea_3303a3a1_400" src="https://github.com/user-attachments/assets/d7c9f420-4a6e-45ec-b82c-89887e09f486" />
-
+<img width="131" height="180" alt="131px-Tsukasa_14_cutout" src="https://github.com/user-attachments/assets/be0216d9-303d-4fc6-8b59-01be0345c44f" />
 
 Me
