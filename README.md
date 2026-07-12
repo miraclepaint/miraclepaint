@@ -1,3 +1,2 @@
-<img width="400" height="400" alt="tumblr_160de2fc24d40a4fed828e34ef55a087_0daff219_400" src="https://github.com/user-attachments/assets/51c181fc-7986-4b89-89d4-bd142542d6ca" />
+<img width="2400" height="2400" alt="Untitled941_20260712105707" src="https://github.com/user-attachments/assets/5e71cdce-1422-40fe-aa46-a9ac6c7c797d" />
 
-Me
