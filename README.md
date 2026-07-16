@@ -7,6 +7,7 @@
 <p align="center">Minor , 15+ iwec 
 
 <p align="center">I dont text first and im not a fast replier, I promise i dont hate you i just suck at communicating 
-
+‎ 
+  ‎ 
 <p align="center">Main interests are Prosekai and Dandys World , not really active in DW anymore due to qwel allegations 
 
