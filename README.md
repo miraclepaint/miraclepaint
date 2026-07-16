@@ -4,5 +4,5 @@
   
 <p align="center">c×h + interact freely (preferably w2i)
 <p align="center">I like people taking inspo from me but please do not copy my ponies .
-<p align="center">Im a minor , 15+ iwec 
+<p align="center">Minor , 15+ iwec 
 <p align="center">readme still in wip aufhhhh
