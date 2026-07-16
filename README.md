@@ -6,4 +6,4 @@
 
 <p align="center">Minor , 15+ iwec 
 
-<p align="center">
+<p align="center">I dont text first I promise I dont hate you im suck at starting conversations
