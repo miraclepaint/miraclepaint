@@ -12,5 +12,6 @@
 ‎ 
 ‎ 
   ‎ 
-<p align="center">Main interests are Prosekai and Dandys World , not really active in DW anymore due to qwel allegations 
+<p align="center">Main interests are Prosekai , Dandys World and Animal Hospital , thought not really active in DW anymore due to qwel allegations 
 
+<p align="center">I dont mind ships interacting as long its not problematic thought im a huge Ruikasa and Akikasa/Akikoha + emutoya enjoyer ♡
