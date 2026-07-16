@@ -1,7 +1,8 @@
-<img src="https://github.com/user-attachments/assets/2180beca-c5a4-44b0-849d-244a84d9dfca" width="250" align="right">
+<img src="https://github.com/user-attachments/assets/2180beca-c5a4-44b0-849d-244a84d9dfca" width="1555" align="right">
 
 <p align="center">c×h + interact freely (preferably w2i)
-text  
+  
+<p align="center">I like people taking inspos from me but please do not copy my ponies
 text  
 text  
 text  
