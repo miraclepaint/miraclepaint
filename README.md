@@ -4,7 +4,7 @@
   
 <p align="center">Inspo are ok , but pls do not copy my ponies
 
-<p align="center">Minor , 18+ iwec 
+<p align="center">Minor . 18+ iwec 
 
 <p align="center">I dont usually text first nor a fast replier, trust me I dont hate you Im suck at communicating 
 ‎ 
