@@ -6,7 +6,7 @@
 
 <p align="center">Minor , 18+ iwec 
 
-<p align="center">I dont text first and also not a fast replier, trust me I dont hate you Im suck at communicating 
+<p align="center">I dont usually text first nor a fast replier, trust me I dont hate you Im suck at communicating 
 ‎ 
 ‎ 
   ‎ 
