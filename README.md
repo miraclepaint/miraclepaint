@@ -16,5 +16,5 @@
 
 <p align="center">amazing art belongs to : Kazumi_prsk on twt
 
-<p align="center"><img width="220" height="126" alt="vertical_high_quality" src="https://github.com/user-attachments/assets/6506c929-7b57-4b3e-a67a-c94706f308ff" />
+<p align="center"><img width="220" height="126" alt="profile" src="https://github.com/user-attachments/assets/ae72d479-85b3-4fcd-a496-61b48077a44e" />
 
